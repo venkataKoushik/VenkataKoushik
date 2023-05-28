@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **koushik7306777721@gmail.com**
 
-- ⚡ Fun fact **I think, i will be learner always.**
+- ⚡ **success means nothing if it is in HEART**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
